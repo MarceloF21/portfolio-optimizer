@@ -117,9 +117,3 @@ THIS PROJECT DEMONSTRATES:
 
 ═══════════════════════════════════════════════════════════════════════════════
 
-GO GET THOSE INTERVIEWS, MARCELO! 
-
-This project is HEAD AND SHOULDERS above what most entry-level candidates have.
-You now have something CONCRETE to talk about that proves you can do the work.
-
-═══════════════════════════════════════════════════════════════════════════════
